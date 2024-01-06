@@ -1,3 +1,3 @@
 # TaiLieu_UTT
-NO THINH TO SAY.
+Ngành Hệ Thống Thông Tin K73 UTT.
 https://www.facebook.com/gg.giangdinh/
